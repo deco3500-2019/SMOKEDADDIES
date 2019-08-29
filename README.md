@@ -1,2 +1,2 @@
-# SomkeDaddies
-Team of a concept about Food Waste
+# SmokeDaddies
+Amending bad habits.
